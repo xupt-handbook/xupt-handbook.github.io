@@ -1,1 +1,3 @@
-# xupt-handbook.github.io
+# XUPT生存指南
+
+建设中，敬请期待喵（）
